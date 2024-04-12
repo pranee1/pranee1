@@ -3,7 +3,7 @@ I'm Praneel
 
 \*gasp\*
 
-![f41018a06a58e76e1633b9b9ab8d43fe](https://github.com/pranee1/pranee1/assets/150353552/389dd2f6-a8ce-41b5-9a29-6d8dd4f61a37)
+![f41018a06a58e76e1633b9b9ab8d43fe](https://github.com/pranee1/pranee1/assets/150353552/a197431f-d1d7-46b6-a882-d82e9f75d5d3)
 
 * ✉️  Contact me at [praneel1705@gmail.com](mailto:praneel1705@gmail.com)
 * 🧠  Currently learning bettercap
