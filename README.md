@@ -3,8 +3,8 @@ I'm Praneel
 
 \*gasp\*
 
-* ✉️  You can contact me at [praneel1705@gmail.com](mailto:praneel1705@gmail.com)
-* 🧠  I'm learning bettercap
+* ✉️  Contact me at [praneel1705@gmail.com](mailto:praneel1705@gmail.com)
+* 🧠  Currently learning bettercap
 
 ### Skills
 
