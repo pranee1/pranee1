@@ -2,6 +2,7 @@ I'm Praneel
 ========================
 
 \*gasp\*
+![Uploading f41018a06a58e76e1633b9b9ab8d43fe.gif…]()
 
 * ✉️  Contact me at [praneel1705@gmail.com](mailto:praneel1705@gmail.com)
 * 🧠  Currently learning bettercap
