@@ -6,7 +6,7 @@ I'm Praneel
 ![f41018a06a58e76e1633b9b9ab8d43fe](https://github.com/pranee1/pranee1/assets/150353552/a197431f-d1d7-46b6-a882-d82e9f75d5d3)
 
 * ✉️  Contact me at [praneel1705@gmail.com](mailto:praneel1705@gmail.com)
-* 🧠  Currently learning bettercap
+* 🧠  Currently learning JavaScript
 
 ### Skills
 
